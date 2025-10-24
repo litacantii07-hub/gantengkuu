@@ -1,0 +1,2 @@
+# gantengkuu
+untuk gantengku 
